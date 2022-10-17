@@ -3,8 +3,8 @@
 - 👍 meu email de contato é @julianalilika18@gmail.com
 - 👀 eu estou interessado em aprender  a programar.
 - 🌱 eu estou aprendendo a programar,as linguagens de scret e java critp
-- cis<3💞️💞️
-- @juliana_gomes080💞️
+- cis<3💞️💞
+- **@juliana_gomes080💞️**
 
 <!---
 JulianaGomes0800/JulianaGomes0800 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
